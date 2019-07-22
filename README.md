@@ -1,3 +1,3 @@
 
 
-## The model is so heavy, I cant upload it :D
+## The model is so heavy, I can't upload it :D
